@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @roberthile
+- 👀 I’m interested in ... Physics
+- 🌱 I’m currently learning ... to be patient.
+- 💞️ I’m looking to collaborate on ... everything.
+- 📫 How to reach me ... show up to class.
